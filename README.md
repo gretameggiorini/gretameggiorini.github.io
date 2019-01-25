@@ -1,2 +1,0 @@
-# gretameggiorini.github.io
-website
